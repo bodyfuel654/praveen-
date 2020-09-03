@@ -1,0 +1,2 @@
+# praveen-
+Allmax Nutrition Allwhey Classic is a premium standard Whey Protein Concentrate blended with Whey Protein Isolate offering 30gm Protein in a 46gm serving. Allwhey offers a clean, and whole protein made from the best protein sources. ALLWHEY does not include non-whey protein sources like soy or beef, it has no Amino spiking and no fillers. Allwhey classic goes through a cross-flow filtration system Allwhey outstands its competitors with a 70%  protein yield that is tested and guaranteed.
